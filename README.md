@@ -1,1 +1,1 @@
-# Diamond-In-The-Sky-Documentation-
+# Diamond-In-The-Sky-Documentation
